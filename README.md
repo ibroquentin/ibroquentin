@@ -1,4 +1,7 @@
 i like to play and draw
+
+roblox: ibroquentin
+discord: lakdi
 <!--
 **ibroquentin/ibroquentin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
